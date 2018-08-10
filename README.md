@@ -1,2 +1,4 @@
 # devops-aula02
-Aula 02
+Augustinho Carrara
+Mia Khalifa
+Aline Morais
